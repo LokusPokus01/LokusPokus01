@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LokusPokus01
+- 👀 I’m interested in Women
+- 🌱 I’m currently learning How to talk to Women
+- 💞️ I’m looking to collaborate on Women
+- 📫 How to reach me: not women
